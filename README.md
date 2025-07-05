@@ -20,4 +20,4 @@
 
 如果你正在寻找一个真正稳定、不卡顿、内容丰富的日本AV免费在线观看网站，我们相信，这将是你值得收藏的首选平台。
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg57687/354065 ）</span>
